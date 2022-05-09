@@ -13,3 +13,15 @@
 2. Have a Q&A session
 
 $ The study will be done with Zoom which can make us to share the computer screen.
+
+
+## Progress
+
+Week 1.
+
+Week 2.
+
+Week 3.
+
+Week 4.
+

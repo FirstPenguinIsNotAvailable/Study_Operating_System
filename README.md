@@ -17,14 +17,4 @@ $ The study will be done with Zoom which can make us to share the computer scree
 
 ## Progress
 
-Week 1.
-- Time: 08:00pm ~ 09:00pm (max 09:30pm). 22.05.14. 
-- Presenter: Steven Lee
-- Target: Section 1
-
-Week 2.
-
-Week 3.
-
-Week 4.
 
